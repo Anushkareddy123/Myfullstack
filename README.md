@@ -1,3 +1,3 @@
 # Myfullstack
 
-#AKSHITHA AND DEEPTHI 
+ANUSHKA REDDY
